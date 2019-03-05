@@ -1,1 +1,2 @@
-# Arabic-wiki-test
+# Initial page
+
