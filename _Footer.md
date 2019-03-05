@@ -1,0 +1,1 @@
+Gunbot: we aim to build the perfect money machine
